@@ -1,1 +1,1 @@
-# osky-info.com
+# www.osky-info.com
